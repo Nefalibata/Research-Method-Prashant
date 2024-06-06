@@ -15,6 +15,6 @@ Seaweed are photoautotrophic organisms that inhabit the ocean's upper layer, the
 5. Morphological aspects.
 6.Molecular aspects.
 
-# **Results** 
+# **Results**
 
-![alt text](c:\Users\prash\Downloads\14555698_1.webp)
+![alt text](![alt text](DSCN3043.JPG))
